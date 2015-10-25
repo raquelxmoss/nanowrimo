@@ -1,1 +1,1 @@
- Random stuff to test git diff fetcher thingie
+Random stuff to test git diff fetcher thingie
