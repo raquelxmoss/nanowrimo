@@ -126,9 +126,46 @@ ______________________________________________________________________
 
 The Town Hall was decorated for the dance, and taffeta ribbons brushed Graham's hair as he led Vi deep into the crowd. She followed with ill grace and grimaced as Graham sat her down in the corner of the room. 
 
-"Try to enjoy the dance, Vi," Graham advised. Winsome appeared and sat down next to Graham, tapping her foot to the music and keeping up a steady flow of conversation.
+"Try to enjoy the dance, Vi," Graham advised. Winsome appeared and sat down next to Graham, tapping her foot to the music and keeping up a steady flow of conversation. 
 
 
 - Later at the dance, Vi sits moodily, watching. The other girls make fun of her for her repeat dress and for sitting alone. Graham tries to persuade her to dance. Leo has stalked off into the night. He's Catholic, not a martian.
 - Leo comes to Vi's window after the dance and they try to talk it out. Leo resolves to ask his father's permission, but father turns him down. Leo acquiesces, Vi calls him a coward and cries.
 - As Leo's engagement to a Nice Catholic Girl is announced, Vi leaves for Wellington and dental nursery.
+
+
+
+
+
+______________________________________________________________________
+
+Fiona and Megan clutched their warm cups of jasmine tea gratefully, easing the chill of the Wellington wind. Raquel smirked at them, amused, and sipped her own tea.
+
+"Have you heard from Mum recently?" Fi asked Meg.
+
+"Last I heard she was on holiday again," replied Meg. "Her and Leo were driving to Ohakune."
+
+"They came down to Wellington the other week," added Raquel, "No warning at all, she just sent me a text asking if I was in town and said she wanted to have lunch. I had no idea Leo was with her until we got to lunch and there he was."
+
+"She did the same thing to me," nodded Fi, "I got a text from her '_Meet me in 20 minutes for lunch_'. I was expected to just drop everything and go to lunch. It was a busy day, too. I don't know why she couldn't have given me a day's warning, I would have arranged for someone else to look after the desk."
+
+"Well, you know what mum's like," sighed Meg, "It's all about her all the time"
+
+"Yep," agreed Fi. 
+
+"What's up with her and Leo? Are they still married?" Raquel couldn't figure out what the situation was.
+
+"Well they have to be, don't they? Catholics and all that." Meg said.
+
+"Oh yes, they're definitely still married. They can't live together though, mum was bored out of her brain there," added Fi.
+
+"Right, but they still go on holiday together? Frequently?" Raquel asked.
+
+"It's not like they've got anything better to do," replied Meg, sarcasically. 
+
+
+
+
+
+
+
