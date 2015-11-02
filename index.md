@@ -107,3 +107,28 @@ It was entirely the wrong thing to say. Vi reached up and slapped Leo hard acros
 Vi's lip quivered. 
 
 Another voice spoke. "It's not going to happen, Leo," Graham had reappeared and his hesitation was gone. "Come on Vi. Let's go in."
+
+"Vi, why? Please tell me what's going on." Leo was distraught, and confused. 
+
+"Our father won't allow you two to marry," said Graham, quietly. "You're Catholic, Leo. Vivienne will marry a Protestant."
+
+"He's a Catholic, Graham. He's not a Martian!" Vi's rage had bubbled anew.
+
+Leo exhaled sharply and clenched his fists. He turned to go. Vi stumbled towards him but Graham had taken ahold of her wrist and she was trapped. 
+
+"Leo!" she cried, anguished.
+
+Leo stalked off into the darkness, not looking back.
+
+"Let's go in, Vi," repeated Graham quietly, tugging her along. Vi choked and followed reluctantly.
+
+______________________________________________________________________
+
+The Town Hall was decorated for the dance, and taffeta ribbons brushed Graham's hair as he led Vi deep into the crowd. She followed with ill grace and grimaced as Graham sat her down in the corner of the room. 
+
+"Try to enjoy the dance, Vi," Graham advised. Winsome appeared and sat down next to Graham, tapping her foot to the music and keeping up a steady flow of conversation.
+
+
+- Later at the dance, Vi sits moodily, watching. The other girls make fun of her for her repeat dress and for sitting alone. Graham tries to persuade her to dance. Leo has stalked off into the night. He's Catholic, not a martian.
+- Leo comes to Vi's window after the dance and they try to talk it out. Leo resolves to ask his father's permission, but father turns him down. Leo acquiesces, Vi calls him a coward and cries.
+- As Leo's engagement to a Nice Catholic Girl is announced, Vi leaves for Wellington and dental nursery.
