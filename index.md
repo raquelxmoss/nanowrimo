@@ -128,8 +128,39 @@ The Town Hall was decorated for the dance, and taffeta ribbons brushed Graham's 
 
 "Try to enjoy the dance, Vi," Graham advised. Winsome appeared and sat down next to Graham, tapping her foot to the music and keeping up a steady flow of conversation. 
 
+Vi stared blankly out at the dancers, barely hearing the music and chewing her lip moodily. She knew she hadn't done a good job of explaining her thoughts to Leo, but she hadn't wanted to bring up the elephant in the room -- neither her parents nor Leo's wanted them to marry, and the two of them were going to have to make a decision soon as to whether they would defy their parents or obey them.
 
-- Later at the dance, Vi sits moodily, watching. The other girls make fun of her for her repeat dress and for sitting alone. Graham tries to persuade her to dance. Leo has stalked off into the night. He's Catholic, not a martian.
+Leo was wrong, Vi thought; it would make no difference whether they faced the issue when Leo was done with his apprenticeship. Their parents were set in their ways, and they wouldn't change their minds. Leo and Vi needed to find the courage to be bold and act now. Vi didn't want to think about the alternative. 
+
+Vi stewed, foot tapping irritably, out-of-time with the music. Graham eventually drifted away, an enthusiastic Winsome leading him to dance. Vi watched them in a detached sort of way. Graham wasn't the most graceful dancer, but with Winsome in his arms he did seem truly happy. The seriousness that usually hung on him like a damp coat seemed lifted as he danced with Winsome.
+
+Unable to take the gaiety around her any more, Vi stood sharply and wove her way to the porch, unnoticed. The porch was crowded with happy young folk taking in the cool air of the spring evening. Vi edged around them and out towards the trees. She sat down with her back to the tree under which she had stood an hour ago, confronting Leo. Her taffeta dress crumpled beneath her and caught flecks of bark from the twig she twirled around her fingers.
+
+After a few minutes, a gaggle of girls on the porch noticed Vi. 
+
+"Nice dress, Vivienne!" one of them called, "Just as nice as when you wore it to the last dance!"
+
+The girls burst into gales of laughter. Vi was too empty of emotion to care, and didn't respond. The taunts continued.
+
+"Full dance card then, Viv?" asked Sissy Danbridge, mockingly. "I didn't realise the trees were available to waltz!"
+
+At that, Vi glanced up angrily, but was spared from answering by the appearance of Graham beside her.
+
+"Christ, Graham," she muttered, "You're like my shadow tonight."
+
+"Come and dance with me, Vi," he cajoled.
+
+"No. I'm not in the ... I just can't dance tonight, Graham. Go and take another turn with Winsome. I'll be fine."
+
+"Trees and her dear brother," came a cackle from the porch, "Vivienne sure is popular this evening!"
+
+Vi ignored the girls. _Airheads_ she thought.
+
+"Go, Graham. I'll wait for you and Lynn on the bench outside the post office, alright? Come and collect me on your way home."
+
+She left, allowing no further argument, marching into the night in her peach satin shoes.
+
+
 - Leo comes to Vi's window after the dance and they try to talk it out. Leo resolves to ask his father's permission, but father turns him down. Leo acquiesces, Vi calls him a coward and cries.
 - As Leo's engagement to a Nice Catholic Girl is announced, Vi leaves for Wellington and dental nursery.
 
