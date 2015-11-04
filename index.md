@@ -163,9 +163,33 @@ Fiona and Megan clutched their warm cups of jasmine tea gratefully, easing the c
 
 "It's not like they've got anything better to do," replied Meg, sarcasically. 
 
+"She looks after him when he's sick, too," said Fi. "She went down to Tauranga and stayed with him after he had his big heart operation. Oh! God!" Fi slapped the table, jostling the teas. "I forgot to tell you about what mum did while Leo was in hospital."
 
+"What happened?" asked Meg
 
+"Well," replied Fi, "she rang me up while Leo was in hospital. He had to stay in there for quite a while because he wasn't healing very well. So mum was staying in his house, looking after things there. She was moaning to me about the Leo's cat -- the poor thing probably just was not conforming to her agenda, you know -- and so then she says "So I took the cat to the vet and got it put down,"" 
 
+Raquel and Meg looked at each other and burst into incredulous laughter. The story was too absurd for any other reaction. 
 
+"Was the cat sick?" asked Raquel.
 
+"No!" answered Fi, "No, the cat was perfectly fine, it was just old!"
 
+"Seriously?" asked Meg, "She put the cat down because it was old? Did she ask Leo?"
+
+"No, she didn't even tell him! So poor Leo gets home after his drastic heart surgery -- which, you know, no small thing -- and his bloody cat is gone!"
+
+"Christ, poor Leo," said Meg, wiping away tears of laughter. 
+
+"God, I know -- can you imagine?" Fi was still laughing, too "I can't believe she would do that... well, I can. She's on the phone with me saying 'Oh you know, the cat's old and scuzzy. Better pack it in now' " 
+
+"Shit, Leo had better not get old and scuzzy then," said Raquel, rolling her eyes. The trio burst into laughter again.
+
+"Yeah, the minute you're no longer useful, you're out, pack your bags!" exclaimed Fi. 
+
+"She did the same thing when I was five, you know?" said Meg. "The cat was getting on, so Mum had obviously told Dad to get rid of it, and he'd put the cat in a cardboard box and chloroformed the poor thing. So later that night, Mum had friends over for a dinner party, and we kids were sent to the garage to play, and I was playing around and came across this cardboard box. Opened up the box, and there's my cat, you know-- " Meg rolled back her eyes and stuck out her tongue, "So I picked the cat up out of the box and ran into the house, crying. Went straight into the dining room and sat the cat on the table in the middle of dinner, crying about how the cat was sick and we had to take him to the vet."
+
+The women laughed and choked down their tea. 
+
+"My grandmother, the serial cat-killer," said Raquel. 
+______________________________________________________________________
