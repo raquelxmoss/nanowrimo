@@ -1,3 +1,4 @@
+nanowrimeter test
 NaNoWriMo 2015	
 
 Vi watched Lynn in the mirror as her younger sister perched on the edge of the bed, skirt hoisted above her knees and legs splayed. A slim, pale hand fiddled as Lynn wound her stocking up her left leg. 
