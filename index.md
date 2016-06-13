@@ -99,7 +99,7 @@ It was entirely the wrong thing to say. Vi reached up and slapped Leo hard acros
 
 "Is that what you think of me? You think that I'm like Sissy Danbridge, spreading my legs for the rugby team? Gracious, perhaps I should. Form an orderly queue, gents!"
 
-"Hush, hush. Vi! I didn't really think that. I just... this doesn't make any sense. Why do you want to rush into a marriage?" Leo was getting desparate. He wasn't good with words when emotions were high.
+"Hush, hush. Vi! I didn't really think that. I just... this doesn't make any sense. Why do you want to rush into a marriage?" Leo was getting desperate. He wasn't good with words when emotions were high.
 
 "Because I love you, Leo. I love you, and I don't want to wait. I'd have thought you would feel the same too."
 

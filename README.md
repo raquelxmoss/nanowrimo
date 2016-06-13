@@ -24,7 +24,7 @@ As it happens, she had reconnected with Leo and had been seeing him for several 
 
 A month or so earlier, Leo’s wife had died of cancer, and Vivienne and Leo, not caring (apparently) about respect for the dead, and seemliness, had decided to get married.
 
-Vivienne decided to convert to catholocism.
+Vivienne decided to convert to catholicism.
 
 They invited their family to their small wedding in the lounge of Leo’s Tauranga home. The officiant was a 25 year old priest wearing robes and playing with an iphone.
 
